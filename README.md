@@ -8,3 +8,5 @@
 福利最新地址发布页https://fulifabuye.github.io/</br>
 小黄鸭导航福利最新地址发布页https://xhydh123.github.io/</br>
 水多多导航最新网址发布页https://shuiduoduo.github.io/</br>
+皮皮虾导航最新网址发布页https://ppxdh.github.io/</br>
+芒果导航最新网址发布页https://mgdh123.github.io/
