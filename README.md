@@ -13,3 +13,4 @@
 老王导航最新网址发布页https://laowangdh.github.io/</br>
 美国第十次导航最新网址发布页https://10daohang.github.io/</br>
 银色导航最新网址发布页https://yinsedh.github.io/</br>
+芭提雅导航最新网址发布页https://batiyadh.github.io/</br>
