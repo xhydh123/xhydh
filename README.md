@@ -16,3 +16,4 @@
 芭提雅导航最新网址发布页https://batiyadh.github.io/</br>
 萌翻导航最新网址发布页https://mengfandh.github.io/</br>
 凹凸网址导航最新网址发布页https://aotudh.github.io/</br>
+小黄鸭导航地址发布页https://xhydh.neocities.org/</br>
