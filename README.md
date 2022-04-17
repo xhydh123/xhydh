@@ -17,4 +17,4 @@
 萌翻导航最新网址发布页https://mengfandh.github.io/</br>
 凹凸网址导航最新网址发布页https://aotudh.github.io/</br>
 小黄鸭导航地址发布页https://xhydh.neocities.org/</br>
-VIP解析-VIP影院-VIP视频解析-VIP影视-VIP视频在线免费观看地址发布页https://vippppppppp.github.io//</br>
+VIP解析-VIP影院-VIP视频解析-VIP影视-VIP视频在线免费观看地址发布页https://vippppppppp.github.io/</br>
