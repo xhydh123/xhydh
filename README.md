@@ -28,3 +28,4 @@ VIP解析-vip影院-VIP视频在线解析https://hhma.cc/</br>
 无良导航地址发布页https://wuliang.neocities.org/</br>
 秘密网站入口发布页https://mimiwangzhanrukou.neocities.org/</br>
 芒果导航凹凸发布页https://mgdh1000.xyz/</br>
+小黄鸭网站导航发布页https://xhydh.github.io/</br>
